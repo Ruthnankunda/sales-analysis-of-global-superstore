@@ -42,7 +42,21 @@ b)what factors might be responsible gor nigeria's poor perfomance?
 b,in china ,sharp wireless    ,hpcopy machinecolor  and samsaungsmart     respectively 
 c,in India ,sauder classic bookcase,traditional($2,149.65),Cisco smart phone with caller Id($1440.24)
 
-3assess
+3.nigeria made a loss $23217,made the most loss compsred to other coutries because high shipping costs
+4.tables is the leaast profitable subcategory in south east asia 
+indonesia made the most loss of 10682$ and should stop supplying it
+
+5.marysville is made the least average profit of $1,this is because it supplies products with the least profit , tables and art $83 and 10$ respectively and supplies only two vaeities of products compred to other cities .instead it should supply phones since they made the mots profit in southesat asia
+
+6.autralia supplied 138$ worth of appliances which is is the highest average profit
+
+7.tamara chand,raymond buch,sanjit chand,hunter lopez,were the top customers
+sanjit chand purchased ibico epk21 electric binding system worth $4630
+tamara chand purchased canonimage class2200advanced copier worth$8400
+raymondbuch purchased canon imageclass 2200 advanced copier worth $6720
+hunterlopez purchased canon imageclass 2200  advanced copier worth $5040
+canon image class 2200 was most bought
+
 
 
 
